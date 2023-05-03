@@ -7,7 +7,7 @@
 취미는
 
 - 컴퓨터 게임
-	> Stardew Valley
+	> Stardew Valley   
 	> Euro truck simulator
 - 모바일 게임
 	> Azur Lane (벽람항로 일본서버)  
